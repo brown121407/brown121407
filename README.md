@@ -4,4 +4,4 @@ Jack of all trades. Got into programming in high school thanks to game developme
 
 Currently interested in: native mobile app development.
 
-https://www.linkedin.com/in/brown121407/
+https://smarton.omg.lol
